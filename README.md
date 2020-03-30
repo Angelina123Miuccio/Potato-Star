@@ -1,2 +1,2 @@
 # Potato-Star
-Brille
+Brille,kurze Haare
